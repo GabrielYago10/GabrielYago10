@@ -1,4 +1,4 @@
-# 👩🏻‍💻 Gabriel Yago
+# 👨🏽‍💻 Gabriel Yago
 
 **`Sobre mim`**
 
